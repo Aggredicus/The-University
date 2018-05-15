@@ -2,7 +2,6 @@
 A Short Story About Learning Time Travelling's Finer Points
 
 *“The ability of an individual to achieve greatness is primarily limited by their ability to imagine greatness.”*
--Dillon Lee
 
 # (The) University
 ## Time to Travel
