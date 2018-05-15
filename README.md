@@ -31,7 +31,17 @@ Enjoying my time.
 
 ### Encountering The Mentor
 
-The ladder is a lot harder to find than expected. With the green flash just behind, all is a cloudy purple haze of pillars as I bob up and down over the rocks underfoot.
+The ladder is a lot harder to find than expected. With the green flash just behind, the pier wall becomes a cloudy purple haze of pillars. I bob afloat as I kick unexpected boulders beneath the shadow of awareness.
+
+Suddenly, visions alight in the darkness. The uncanny terror of the angler fish. A beauty turned horrid visage. Long hypodermic teeth alight with the glow of unnatural bioluminsecence blink forward as bidden time bursts aflame. A predator's ravenous eyes see you clearly. The teeth sink into Achilles and catch him afire with agony. Toes curl. Kicks become short and high to keep the deepest predators from tasting the first strike's blood. The ancient drums of your ancestors' blood beats at your ears and instincts. Rise. Flee. Climb. Pike and piranha tear the back of knees open. Kicks weaken. A squid's beak anchors you to the deep and binds your arms from escape. The Ancient Ones reach up and relish in your despair. Hooks flay the spine and neck as you are reeled in by ichthyd vengeance millenia in waiting. Screams hasten expiration. Empty lungs find respite in filling, only to sting at the contents drawn in. Gasps bring further darkness. Panic subsumes despair subsumes shock subsumes equanimity subsumes passage. A rung.
+
+A rung!
+
+I found the ladder in the darkness.
+
+I climb. Slowly, to avoid falling back in.
+
+   
 
 ___
 
