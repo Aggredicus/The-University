@@ -29,7 +29,7 @@ Enjoying my time.
 
 ***
 
-### Encountering The Mentor
+#### Tribulation at Sea
 
 The ladder is a lot harder to find than expected. With the green flash just behind, the pier wall becomes a cloudy purple haze of pillars. I bob afloat as I kick unexpected boulders beneath the shadow of awareness.
 
@@ -42,6 +42,8 @@ I found the ladder in the darkness.
 I climb. Slowly, to avoid falling back in.
 
    
+#### Encountering The Mentor
+
 
 ___
 
