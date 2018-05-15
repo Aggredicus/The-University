@@ -6,8 +6,10 @@ A Short Story About Learning Time Travelling's Finer Points
 # (The) University
 ## Time to Travel
 ## A Crash Course in Spacetime
-## The Beginning is Nigh
-## 
+## The Beginning is Nigh 
+
+
+### Opening Chapter
 
 the place where I sit, but then, suddenly, I’m not. I stand.
 
@@ -27,11 +29,15 @@ Enjoying my time.
 
 ***
 
+### Encountering The Mentor
+
 The ladder is a lot harder to find than expected. With the green flash just behind, all is a cloudy purple haze of pillars as I bob up and down over the rocks underfoot.
 
 ___
 
-<END OF THE STORY>
+### Final Chapter
+
+#### Parting Passage
 
 I know that we’re here, right now. 
 
